@@ -4,7 +4,7 @@
 
 Acabo de deixar as crianças na estrada para pegarem o táxi para a escola. Emil está tão empolgado; sua equipe de pesäpallo vai voltar aos treinos, e ele não para de falar sobre isso. Já Sofie está um pouco cabisbaixa desde que sua melhor amiga se mudou para Helsinki. Ela vai fazer novas amigas, mas me aperta o coração não ver mais aquele brilho nos seus pequenos olhos.
 
-Logo que chego, me vou de pronto para os campos. Elias já deve estar me esperando lá, depois de ajudar os Ek com seu velho trator. Agora que a neve se foi, todos estão muito agitados para a colheita do centeio. A colheita do ano passado foi muito farta para nós; nunca temos centeio sobrando a esta altura do ano.
+Logo que chego, me vou de pronto para os campos. Elias já deve estar me esperando lá, depois de ajudar os Peltonen com seu velho trator. Agora que a neve se foi, todos estão muito agitados para a colheita do centeio. A colheita do ano passado foi muito farta para nós; nunca temos centeio sobrando a esta altura do ano.
 
 Enquanto Elias cuida de carregar o equipamento pesado para limpar os canais de drenagem, eu vou começar a avaliar o estado do plantio. Felizmente, quanto mais reviro o solo lamacento, mais centeio saudável eu encontro. As nevascas foram mais brandas neste último inverno; poucas plantas morreram. Vamos ter mais uma ótima colheita.
 
