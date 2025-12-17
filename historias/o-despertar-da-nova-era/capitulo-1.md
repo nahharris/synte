@@ -1,6 +1,6 @@
 # Capítulo 1
 
-<u>Finlândia, 2026</u>
+<u>Pajukoski, Finlândia, 2026</u>
 
 Acabo de deixar as crianças na estrada para pegarem o táxi para a escola. Emil está tão empolgado; sua equipe de pesäpallo vai voltar aos treinos, e ele não para de falar sobre isso. Já Sofie está um pouco cabisbaixa desde que sua melhor amiga se mudou para Helsinki. Ela vai fazer novas amigas, mas me aperta o coração não ver mais aquele brilho nos seus pequenos olhos.
 
@@ -30,15 +30,15 @@ Com apenas um impulso, o homem pula da cama. Elias lhe acerta um soco, mas ele p
 
 — Como essa subespécie está aqui na Finlândia? Esta mulher está lhe dando abrigo? Você está traindo sua raça, vadia! — ele está completamente fora de controle. Acredito ter deslocado meu ombro no impacto; a dor é muito forte, mas não é maior que meu medo. Elias não está conseguindo respirar. — Você me dá nojo! — disse aquele desgraçado, enquanto quebra o pescoço do meu marido com as próprias mãos. Ele larga o corpo como se fosse um saco de trapos; seus olhos imediatamente se apagam. O brilho sumiu. Eu começo a tremer, desesperada. O que vai acontecer comigo? Como vou sair daqui?
 
-— Mamãe, chegamos! — Não pode ser... As crianças chegaram da escola. — Emil, Sofie, saiam daqui! — grito, enquanto tento me levantar; preciso salvar meus filhos desse diabo que veio destruir nossas vidas. — Você fez filhos com esta coisa? — ele me interrogou, enquanto apontava para o corpo do meu marido e me agarrava pelo braço com força. — Me largue! — imploro, mas ele aperta mais e mais forte. Sinto que os ossos do meu antebraço vão trincar a qualquer momento.
+— Mamãe, chegamos! — Não pode ser... As crianças chegaram da escola. — Emil, Sofie, saiam daqui! — grito, enquanto tento me levantar; preciso salvar meus filhos desse diabo que veio destruir nossas vidas. — Você fez filhos com esta coisa? — ele me intimou, enquanto apontava para o corpo do meu marido e me agarrava pelo braço com força. — Me largue! — imploro, mas ele aperta mais e mais forte. Sinto que os ossos do meu antebraço vão trincar a qualquer momento.
 
-Ele se aproxima do meu rosto com uma respiração pesada, olha no fundo dos meus olhos e diz: você parecia perfeita; cabelos dourados como o Sol, olhos azuis como o céu no verão. Mas você é impura, está corrompida: deixou um negro te tocar. Mulheres como você serão o motivo da perdição da raça humana. — Eu me arrepio toda; ele vai me matar, com certeza.
+Ele se aproxima do meu rosto com uma respiração pesada, olha no fundo dos meus olhos e diz: você parecia perfeita; cabelos dourados como o Sol, olhos azuis como o céu no verão. Mas você é impura, está corrompida: deixou um negro te tocar. Mulheres como você trarão a perdição à raça humana. — Eu me arrepio toda; ele vai me matar, com certeza.
 
-— Sua morte será lenta como punição. — Ele me avisa, enquanto quebra o meu antebraço com uma das mãos. Com a outra, segura meu bíceps, enquanto termina de rasgar e arrancar meu antebraço. Estou em choque e começo a gritar. É muita dor; não consigo mais pensar em nada que não sejam as crianças. Eu, inutilmente, tento bater nele com meu outro braço. Ele também o quebra e agora agarra meu pescoço. É o meu fim.
+— Sua morte será lenta como punição. — Ele me avisa e quebra o meu antebraço com uma das mãos. Com a outra, segura meu bíceps, enquanto termina de rasgar e arrancar meu antebraço. Estou em choque e começo a gritar. É muita dor; não consigo mais pensar em nada que não sejam as crianças. Eu, inutilmente, tento bater nele com meu outro braço. Ele também o quebra e agora agarra meu pescoço. É o meu fim.
 
 ---
 
-Que desperdício. Como é possível que este anjo tenha cedido às tentações da carne e tenha gerado descendentes com um ser tão inferior? Eu os ouvi chamando há poucos instantes; devem estar por perto. O que estou prestes a fazer não me trará alegria, mas é necessário cortar o mal pela raiz.
+Que desperdício. Como é possível que este anjo tenha cedido às tentações da carne e tenha gerado descendentes com um inferior? Eu os ouvi chamando há poucos instantes; devem estar por perto. O que estou prestes a fazer não me trará alegria, mas é necessário cortar o mal pela raiz.
 
 Ao sair de dentro da casa, vejo os rastros deles. Saíram em disparada depois que a mãe gritou por misericórdia. Como se chamavam? Emil e Sofie, eu acho. As pegadas vão na direção daquele pequeno barraco; um depósito de ferramentas, imagino eu.
 
