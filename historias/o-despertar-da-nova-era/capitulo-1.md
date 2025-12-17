@@ -20,7 +20,7 @@ Enquanto eu pegava meu telefone ouvi um gemido, ele estava acordando. Vou de ime
 
 Onde eu estou? Onde estão minhas coisas? -- Eu havia lhe vestido com roupas do Elias, embora tenham ficado bastante apertadas, seria pior ter um estranho despertando na minha casa completamente nu. Estamos em Pajukoski, a cerca de 80km de Helsinki -- Será que este homem sequer é finlandês?
 
-Helsinki? Ah claro, tinhamos vindo para a Finlândia -- Ele disse enquanto se ajeitava na cama e se sentava. Não se esforce, é um milagre você estar vivo. É estrangeiro? Se lembra como caiu no rio? Veio para cá com alguém -- Sua memória parece estar boa, de certo posso conseguir mais informações para ajudar ele a voltar para sua casa.
+Helsinki? Ah claro, tinhamos vindo para a Rovaniemi -- Ele disse enquanto se ajeitava na cama e se sentava. Não se esforce, é um milagre você estar vivo. É estrangeiro? Se lembra como caiu no rio? Veio para cá com alguém -- Sua memória parece estar boa, de certo posso conseguir mais informações para ajudar ele a voltar para sua casa.
 
 Quando eu começo a ouvir Elias correndo desesperado para dentro de casa. Sari! Sari! Saia de perto dele! -- Ele esbraveja em completo desespero. Olha isso! -- Elias havia limpado parte do equipamento e após retirar muita lama ele encontra um emblema, era uma suástica, o homem que resgatamos era um nazista! Você é nazista?! -- lhe indaguei enquanto me levanto da cama e me afasto assustada, nunca imaginei que isso aconteceria algum dia da minha vida.
 
@@ -44,3 +44,4 @@ Ao sair de dentro da casa eu vejo os rastros delas, saíram em disparada depois 
 
 Arrombo a porta e imediatamente elas começam a chorar e berrar em desespero atrás de uma prateleira. Não chorem pequenos -- eu lhes digo --, vocês não fizeram nada errado, sua mãe que fez. Quem é você e o que fez com a nossa mãe? -- o pequeno monstrinho perguntou enquanto sua irmã se escondia atrás dele. Vocês podem não saber, mas serão responsáveis pelo fim do mundo se eu não os impedir, a mistura vai nos destruir, vocês são perigosos! Vou acabar com isso de uma vez para que não sofram.
 
+Aquela mulher disse que estamos a 80km de Helsinki, de lá devo conseguir reagrupar e voltar para Rovaniemi ou me mandam de volta para Berlin. Deve haver alguma cidade no caminho e lá consigo um transporte.
