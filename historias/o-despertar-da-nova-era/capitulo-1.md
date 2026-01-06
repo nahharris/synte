@@ -44,4 +44,4 @@ Ao sair de dentro da casa, vejo os rastros deles. Saíram em disparada depois qu
 
 Arrombo a porta e imediatamente eles começam a chorar e berrar, em desespero, atrás de uma prateleira. — Não chorem, pequenos — eu lhes digo —, vocês não fizeram nada errado; sua mãe é que fez. — Quem é você e o que fez com a nossa mãe? — o pequeno monstrinho pergunta, enquanto sua irmã se esconde atrás dele. Vocês podem não saber, mas serão responsáveis pelo fim do mundo se eu não os impedir. A mistura vai nos destruir; vocês são perigosos! Vou acabar com isso de uma vez, para que não sofram.
 
-Aquela mulher disse que estamos a 80 km de Helsinki; de lá, devo conseguir me reagrupar e voltar para Rovaniemi, ou me mandarão de volta para Berlim. Deve haver alguma cidade no caminho, e lá consigo um transporte.
+Aquela mulher disse que estamos a 80 km de Helsinki; de lá, devo conseguir me reagrupar e voltar para Rovaniemi, ou me mandarão de volta para Berlim. Devo encontrar alguma cidade no caminho, e lá com certeza consigo um transporte.
